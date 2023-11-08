@@ -7,3 +7,7 @@ Just started this instance ...
 
 [Michel van der Burg](https://michelvanderburg.com)
 
+===
+Page 2
+
+[^footnote]
