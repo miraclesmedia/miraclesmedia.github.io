@@ -1,4 +1,4 @@
-# Miracles•Media
+# [Miracles•Media](https://miracles.media)
 8 November 2023
 
 Just started this instance ... 
